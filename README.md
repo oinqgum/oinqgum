@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oinqgum
 - 👀 I’m interested in robots
-- 🌱 I’m currently learning scool
+- 🌱 I’m currently learning school
 - 📫 How to reach me theagenislouk@gmail.com
 - ⚡ Fun fact: i am a kid
 
